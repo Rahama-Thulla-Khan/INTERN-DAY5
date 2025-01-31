@@ -1,8 +1,8 @@
 🚀 Internship Day 4 - Progress Update
 
-📅 Date: [Your Date]
+📅 Date: [31-01-2025]
 
-🏢 Internship at: [Company/Organization Name]
+🏢 Internship at: [TOP TECH DEVOLPER]
 
 📌 What I Did Today:
 
